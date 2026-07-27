@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分37秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>厄尔尼诺现象加剧，农业抗旱标的全线走强</h3><br><p>亨通光电海缆业务放量，前三季度业绩预增超45%。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>国铁集团旗下标的异动，铁路改革预期持续升温。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>燃料电池汽车示范应用，燃料电池标的全线异动。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>中国船舶造船订单交付，前三季度业绩预增超120%</h3><br><p>QFII集中调研宠物食品龙头，海外市场渗透率数据公开。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>中天科技放量上涨4.7%，海缆+储能双轮驱动</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>天齐锂业触底反弹，锂矿价格企稳带动板块情绪</h3><br><p>千兆城市建设全覆盖，光通信板块走强。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>绿色建材认证政策，绿色建材板块走强。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国平安寿险改革成效：新业务价值增速转正的底层逻辑</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>燃料电池汽车示范应用，燃料电池标的全线异动</h3><br><p>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>www.winfae.com
