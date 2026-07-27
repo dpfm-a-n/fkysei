@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>芬兰经济走出衰退，绿色技术产业拉动复苏。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>北京冬奥场馆全年接待人次破2000万，冰雪运动持续普及</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先</h3><br><p>天赐材料异动拉升4.9%，电解液龙头成本优势凸显。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>贵州茅台渠道改革进展：直营占比提升下的盈利弹性测算</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>全球循环经济市场规模突破5万亿美元，资源利用效率提升</h3><br><p>全国社会体育指导员超300万人，指导群众科学健身。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>虚拟电厂政策试点扩容，电力信息化标的集体拉升</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>宁德时代异动拉升6.2%，海外储能项目持续落地。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>运达股份风电整机盈利修复：行业底部的经营优化逻辑。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>外资单日加仓三一重工12亿，工程机械龙头获外资回流</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国青少年足球联赛参赛队伍破万支，覆盖百万青少年球员</h3><br><p>风电并网消纳政策优化，风电运营板块全线走强。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>贵州茅台站稳年线，趋势反转信号逐步确认。<br><br> | 来源：<code>www.nimendong.com
