@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>梅花生物异动拉升3.1%，氨基酸产品价格反弹</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国房贷利率动态调整机制优化，更多城市进入低利率区间</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>宁德时代商业模式拆解：动力电池龙头的护城河有多深</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>2026年文旅市场全面繁荣，文化自信融入大众日常生活。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破</h3><br><p>长安汽车涨停封板，突破后的延续性如何判断。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>国内露营装备市场规模破千亿，国产品牌占据90%市场份额</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>房地产融资白名单出台，优质房企板块走强</h3><br><p>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>大熊猫野生种群数量突破2000只，受威胁等级下调至易危</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>中国电建新能源运营盈利高增，单季业绩预增超25%。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>全球航运市场回暖，集装箱运价指数回升至合理区间。<br><br> | 来源：<code>www.chtea.ac.cn
