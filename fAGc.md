@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分45秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>NOR Flash价格上调10%，闪存芯片板块盈利弹性释放</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://wuye-jingpin.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%。<br><br> | 来源：<code>https://wuye-tingting.com.cn
+</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>隆基绿能成本优势解析：光伏龙头如何持续领跑行业。<br><br> | 来源：<code>https://wuyefuli.com.cn
+</code></p><br><br><h3>宁德时代Q3净利润同比增长70%，大超市场预期</h3><br><p>全国桨板赛事超百场，水上运动参与人数破千万。<br><br> | 来源：<code>https://wuyefuli.net.cn
+</code></p><br><br><h3>中国建筑涨超2.8%，基建订单持续饱满</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>https://wuyefulipian.cn
+</code></p><br><br><h3>2026年暑期文旅总收入突破2万亿，创历史同期新高</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>https://wuyefulishipin.cn
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://wuyeshipin.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>https://wuyeshipin.net.cn
+</code></p><br><br><h3>游资顶级席位打板天赐材料1.2亿，电解液标的获热炒</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>https://wuzaixianguankan.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://www-91.cn
+</code></p><br><br><h3>通威股份低位反弹，超跌后的修复行情持续性判断</h3><br><p>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进。<br><br> | 来源：<code>https://www-91.com.cn
+</code></p><br><br><h3>新能源汽车出口数据翻倍，整车出口标的集体异动</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://www-91com.com.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>全国京津冀生态环境联建联防联治，空气质量同比改善10%。<br><br> | 来源：<code>https://www-91n.com.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://www-91ncom.com.cn
+</code></p><br><br><h3>绿色建材认证政策，绿色建材板块走强</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>https://www17ccom.com.cn
+</code></p><br><br><h3>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://www17ccomqicao.com.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://www17cwang.com.cn
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>联合国可持续发展目标中期评估，明确后续行动路径。<br><br> | 来源：<code>https://www91com.com.cn
+</code></p><br><br><h3>贵州茅台渠道改革进展：直营占比提升下的盈利弹性测算</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://www91comvn.cn
+</code></p><br><br><h3>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野</h3><br><p>别被短期波动洗下车：核心资产的价值需要时间兑现。<br><br> | 来源：<code>https://www91ncn.cn
