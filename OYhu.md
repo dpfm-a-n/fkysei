@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://hei-liaobaoliao.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米。<br><br> | 来源：<code>https://hei-liaobu.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>海螺水泥水泥价格回升，单季业绩预告超预期。<br><br> | 来源：<code>https://hei-liaobudayang.cn
+</code></p><br><br><h3>全国垃圾分类覆盖率达92%，资源化利用率提升至38%</h3><br><p>美的集团创年内新高，海外家电收入增速超20%。<br><br> | 来源：<code>https://hei-liaobudayang.com.cn
+</code></p><br><br><h3>超200家机构到访数据要素龙头，数据确权商业模式落地</h3><br><p>外资持续流入万科A，地产龙头外资持仓占比突破2%。<br><br> | 来源：<code>https://hei-liaochigua.cn
+</code></p><br><br><h3>全球粮食价格指数连续6个月回落，粮食危机压力缓解</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>https://hei-liaochigua.com.cn
+</code></p><br><br><h3>全国红色旅游暑期人次破3亿，年轻人占比超60%</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>https://hei-liaochiguawang.com.cn
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>https://hei-liaodaohang.cn
+</code></p><br><br><h3>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破</h3><br><p>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局。<br><br> | 来源：<code>https://hei-liaose.cn
+</code></p><br><br><h3>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力</h3><br><p>天际股份放量上涨4.3%，锂电材料业务盈利修复。<br><br> | 来源：<code>https://hei-liaoshe.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>https://hei-liaoshe.com.cn
+</code></p><br><br><h3>科达利放量拉升4.7%，锂电池结构件订单饱满</h3><br><p>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三。<br><br> | 来源：<code>https://hei-liaoshequ.cn
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>https://hei-liaowang.cn
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>https://hei-liaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https://hei-si.com.cn
+</code></p><br><br><h3>流感进入高发季，疫苗抗病毒标的全线拉升</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://heidayang.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长</h3><br><p>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力。<br><br> | 来源：<code>https://heiliao-budayang.com.cn
+</code></p><br><br><h3>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>https://heiliao-she.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https://heiliaobaoguang.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>2026年美丽中国建设成效显著，绿色发展底色更加鲜明。<br><br> | 来源：<code>https://heiliaobu.cn
