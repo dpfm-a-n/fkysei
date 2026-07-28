@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>全国生物多样性观测网络建成，覆盖超3000个生态点位。<br><br> | 来源：<code>https://shunudonghua.com.cn
+</code></p><br><br><h3>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>https://si-hu-yingyuan.com.cn
+</code></p><br><br><h3>皖通高速涨超2.1%，安徽区域路网盈利稳健</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>https://si-hu.com.cn
+</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>https://si-huyingshi.com.cn
+</code></p><br><br><h3>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三</h3><br><p>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列。<br><br> | 来源：<code>https://si-huyingyuan.com.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>https://si-huzaixianguankan.com.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://sibada-daren-ban-mantianxing-xingchen.com.cn
+</code></p><br><br><h3>润和软件涨超7.2%，鸿蒙生态业务落地加速</h3><br><p>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目。<br><br> | 来源：<code>https://sigua-shipin.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https://siguavideos.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升。<br><br> | 来源：<code>https://siji-she.org.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>https://sijipianku.org.cn
+</code></p><br><br><h3>北向资金连续5日净流入，降息后外资持续加仓核心资产</h3><br><p>全国人均预期寿命提升至79.8岁，主要健康指标居中高收入国家前列。<br><br> | 来源：<code>https://sijishe.org.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>https://simijiaoxuehanmanku.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://siwaxiaoshuo.com.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://siyingyuanhu.com.cn
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析。<br><br> | 来源：<code>https://slghuangyou.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>https://slghuangyoutuijian.com.cn
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://slgyouxiwangzhan.com.cn
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>海南高速异动拉升2.0%，海南旅游带动车流量回升。<br><br> | 来源：<code>https://smkunbang.com.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://smluntan.com.cn
