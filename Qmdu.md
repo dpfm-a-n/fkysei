@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>https://heiliaoliudianban.com.cn
+</code></p><br><br><h3>大模型在能源领域应用，电网调度效率提升25%</h3><br><p>全国县域经济百强榜发布，东部地区占比超七成。<br><br> | 来源：<code>https://heiliaoshequ.com.cn
+</code></p><br><br><h3>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://heiliaoshequ.org.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://heiliaoshequguanwang.cn
+</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>https://heiliaoshequnigu.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://heiliaoshequwang.cn
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性。<br><br> | 来源：<code>https://heiliaoshipin.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://heiliaotiantiandongman.cn
+</code></p><br><br><h3>赣锋锂业放量上涨，固态电池技术落地加速</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://heiliaowangbudayang.cn
+</code></p><br><br><h3>国内降准政策落地，大金融板块全线拉升</h3><br><p>全国工业余热利用项目大规模落地，年节能超千万吨标准煤。<br><br> | 来源：<code>https://heiliaowangchigua.cn
+</code></p><br><br><h3>全国步行街改造升级完成，200条示范街夜间营收占比超70%</h3><br><p>中国围棋AI算法登顶世界，人工智能助力棋类运动发展。<br><br> | 来源：<code>https://heiliaowangguanwang.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://heiliaowangrukou.cn
+</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://heiliaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破</h3><br><p>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升。<br><br> | 来源：<code>https://heiliaowangzaixian.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>多地景区推出“一票通”联票，覆盖周边十余景点让利游客。<br><br> | 来源：<code>https://heiliaowangzhan.cn
+</code></p><br><br><h3>炒股到最后拼的是心态：再好的牛股拿不住也是白搭</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://heiliaowangzuixin.cn
+</code></p><br><br><h3>券商板块异动激活人气：行情回暖下的贝塔机会解析</h3><br><p>央行新增5000亿元支小再贷款，精准支持小微企业发展。<br><br> | 来源：<code>https://heiliaowanwang.cn
+</code></p><br><br><h3>北京建工放量上涨3.0%，京津冀基建项目落地加速</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>https://heiliaowudeshipin.cn
+</code></p><br><br><h3>调味品行业标准升级，调味品龙头板块走强</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>https://heiliaozaixianguankan.cn
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://heiliaozhengnengliang.cn
